@@ -97,3 +97,7 @@ Where?
 https://bookscouter.com/
 
 https://bookriot.com/2017/10/31/sell-used-books/
+
+![](https://www.sellbackyourbook.com/images/sell-back-book.png)
+
+# https://www.sellbackyourbook.com/?utm_source=various&utm_medium=redirect&utm_campaign=Redirecturls
