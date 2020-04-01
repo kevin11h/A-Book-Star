@@ -3,6 +3,8 @@
 # A-book-store-online-sales-site
 http://bookshopblog.com/2011/06/23/can-you-make-money-selling-books-online-part-1/
 
+# https://www.bookstores.com/textbooks/cash-for-textbooks.aspx
+
 https://www.bookfinder.com/buyback/
 
 # Free-Books-Bay-Area-Silicon-Valley
